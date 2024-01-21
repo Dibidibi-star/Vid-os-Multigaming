@@ -1,2 +1,2 @@
-# Vid-os-Multigaming
+# Videos-Multigaming
 Vidéos Multigaming !!
